@@ -11,3 +11,4 @@
 ![image](https://cdn.discordapp.com/attachments/935531999786045456/977961242029338655/yasakland.png)
 ![image](https://cdn.discordapp.com/attachments/935531999786045456/977961320274075668/taglalm.png)
 ![image](https://cdn.discordapp.com/attachments/935531999786045456/977962696773365831/sesli.png)
+![image](https://cdn.discordapp.com/attachments/937999501820567552/977965650284781598/oyun.png)
